@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Swathisrinivasalu
+- 👋 Hi, I’m @Swathi Srinivasalu
 - 👀 Looking forward to start my career in Data Analytics
 - 🌱 I’m currently learning Data Analyst in Excler
 - 📫 How to reach me @ swasrine@gmail.com or www.linkedin.com/in/swathi-srinivasalu
